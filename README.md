@@ -1,3 +1,7 @@
+![How to Dominate Local Search](how-to-dominate-local-search.png)
+
+
+
 🚨📢 **It’s Here!** After months of late-night coffee-fueled writing and real-world SEO trench warfare, I'm proud to announce the **official release** of:
 
 ## 📕 *How to Dominate Local Search: The All in One Digital Marketing Guide for Small Business Owners (2nd Edition)*
